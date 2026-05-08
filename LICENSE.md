@@ -1,4 +1,4 @@
-
+Get the ultimate Bear for macOS workflow with Bear for macOS elite Workflow - focus mode and voice notes. Featuring focus mode and voice notes, it's the best choice for macOS
 
 
 
